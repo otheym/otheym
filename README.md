@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **To use the triad Unity, Blender, Krita**
 
-- 📫 How to reach me **contacto@netlogar.com**
+- 📫 How to reach me **netlogar@proton.me**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
